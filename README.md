@@ -11,7 +11,7 @@
 # 💫Sobre mim :
 🔭 Atualmente tentando entender o GitHub
   
-🌱 Recentemente entrei no curso da Oracle Next Education
+🌱 
 
   👯 Sempre disposto a aprender com os outros
 
