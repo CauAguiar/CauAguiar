@@ -15,8 +15,6 @@
 
   👯 Sempre disposto a aprender com os outros
 
-  🤔 Insegurança reina sobre mim
-
   💬 Não tenha medo de me mandar uma mensagem :)
 
   📫 Como me contatar:  
